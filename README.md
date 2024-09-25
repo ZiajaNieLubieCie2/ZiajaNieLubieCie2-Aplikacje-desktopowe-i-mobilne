@@ -1,0 +1,1 @@
+# ZiajaNieLubieCie2-Aplikacje-desktopowe-i-mobilne
